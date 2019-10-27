@@ -1,0 +1,2 @@
+# Laporan_Proyek2_Ira_Dwita_Syafitri_Tarigan_1184024
+Repository ini berisi tentang laporan proyek 2
